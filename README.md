@@ -3,3 +3,6 @@ read my strawpage dude
 
 sign my ata while ur at it
 <br>https://albedo.atabook.org
+
+selective sharing albedo
+<br>riako
