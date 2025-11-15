@@ -4,8 +4,10 @@ read my strawpage dude
 sign my ata while ur at it
 <br>https://albedo.atabook.org
 
-selective sharing albedo
-<br>riako &mdash; very sharing /w
-<br>all green names !
+albedo yume ! sunbedo 5eva
+
+( ships & doubles welcome do
+<br>not worry ! i love to share my
+<br>love for him ♡ )
 
 <a href="https://hits.sh/github.com/bedofly/"><img alt="Hits" src="https://hits.sh/github.com/bedofly.svg?label=transient%20blossoms&color=d4c8aa"/></a>
