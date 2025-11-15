@@ -8,6 +8,6 @@ albedo yume ! sunbedo 5eva
 
 ( ships & doubles welcome do
 <br>not worry ! i love to share my
-<br>love for him ♡ )
+<br>love for him in ponytown ♡ )
 
 <a href="https://hits.sh/github.com/bedofly/"><img alt="Hits" src="https://hits.sh/github.com/bedofly.svg?label=transient%20blossoms&color=d4c8aa"/></a>
