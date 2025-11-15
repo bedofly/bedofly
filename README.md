@@ -6,3 +6,5 @@ sign my ata while ur at it
 
 selective sharing albedo
 <br>riako
+
+<a href="https://hits.sh/github.com/bedofly/"><img alt="Hits" src="https://hits.sh/github.com/bedofly.svg?label=i%20got%20nothign&color=d4c8aa"/></a>
